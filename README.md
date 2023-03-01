@@ -1,3 +1,5 @@
+For more questions, contact me on whatsapp https://wa.link/jgqjob
+
 # kit-caller
 video-conferencing by animating selfie pictures on live camera
 
